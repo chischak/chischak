@@ -1,5 +1,4 @@
 <p align="center"> <b>Бурдина Екатерина, ИВТ-22-1Б</b></p>
-бл*н
 <hr>
 <p align="center"><b>МЕТРО ЛЮБЛИНО - РАБОТАЕМ!!</b><a href="https://imgbb.com/"></p>
 
